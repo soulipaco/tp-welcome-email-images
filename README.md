@@ -1,0 +1,1 @@
+# tp-welcome-email-images
